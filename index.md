@@ -4,9 +4,13 @@
 <script src="//code.jivosite.com/widget/HRc5jxcFGw" async></script>
 
 
-## EMAIL 
-qswfm10001@tutanota.com
-## TELEGRAM 
-## LINE
-## WHATSAPP
+## email
+
+## line
+
+## telegram
+
+## whatsapp
+
+
 
