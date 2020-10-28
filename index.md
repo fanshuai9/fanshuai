@@ -14,7 +14,7 @@ sh1943
 
 ## telegram
 
-[https://t.me/fsfsfsfs123](https://t.me/fsfsfsfs123)
+https://t.me/fsfsfsfs123
 
 ## whatsapp
 
