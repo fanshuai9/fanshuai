@@ -12,7 +12,7 @@ qswfm10001@tutanota.com
 
 
 ## line
-sh1943
+fsfs9
 
 
 
@@ -20,7 +20,7 @@ sh1943
 
 ## telegram   
 
-[https://t.me/fsfsfsfs123](https://t.me/fsfsfsfs123)
+[https://t.me/fsfsfsfs123](https://t.me/fsfs99)
 
 
 
@@ -28,5 +28,6 @@ sh1943
 
 ## whatsapp
 
+[https://wa.me/message/TRWQLWMRELSOB1](https://wa.me/message/TRWQLWMRELSOB1)
 
 
