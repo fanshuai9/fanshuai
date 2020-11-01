@@ -20,7 +20,7 @@ fsfs9
 
 ## telegram   
 
-[https://t.me/fsfsfsfs123](https://t.me/fsfs99)
+[https://t.me/fsfs99](https://t.me/fsfs99)
 
 
 
