@@ -28,6 +28,3 @@ fsfs9
 
 ## whatsapp
 
-[https://wa.me/message/TRWQLWMRELSOB1](https://wa.me/message/TRWQLWMRELSOB1)
-
-<img src="QQ截图20201101194420.png" alt="1" />
